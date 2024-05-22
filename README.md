@@ -1,1 +1,1 @@
-# Kode Latihan P)raktikum Proglan ke-2
+# Kode Latihan Praktikum Proglan ke-2
